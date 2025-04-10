@@ -1,0 +1,1 @@
+# integra-o-chat-gpt-com-service-desk-ManageEngine
